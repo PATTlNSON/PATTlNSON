@@ -1,15 +1,15 @@
 <div align="center">  
 
-![](https://komarev.com/ghpvc/?username=punisherMAX&color=868688&label=☣︎)
+![](https://komarev.com/ghpvc/?username=PATTlNSON&color=FAFCFA&label=☆)
   </div>
 <div align="center">  
-<img width="500" height="375" alt="loki" src="https://img1.picmix.com/output/pic/normal/0/3/3/5/6615330_cf5bd.gif" />
+<img width="498" height="281" alt="loki" src="https://media1.tenor.com/m/6pfqOeahMU8AAAAC/my-honest-reaction-meme-robert-pattinson.gif" />
   </div>
   <div align="center">
 
 <div align="center">
-<sup> #1 punisher max fan </sup>
+<sup> kawaii pattinson !!! </sup>
 </div>
 <div align="center">
-<sup> unc still got it ,,, </sup>
+<sup> best genz actor around . . . </sup>
 </div>
