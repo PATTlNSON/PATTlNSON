@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=PATTlNSON&color=FAFCFA&label=☆)
   </div>
 <div align="center">  
-<img width="498" height="281" alt="loki" src="https://media1.tenor.com/m/6pfqOeahMU8AAAAC/my-honest-reaction-meme-robert-pattinson.gif" />
+<img width="498" height="281" alt="loki" src="https://i.imgur.com/7p0XQSv.gif" />
   </div>
   <div align="center">
 
