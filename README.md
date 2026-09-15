@@ -9,8 +9,8 @@
   <div align="center">
 
 <div align="center">
-<sup> kawaii pattinson !!! </sup>
+<sup> I can be your one time baby . . . </sup>
 </div>
 <div align="center">
-<sup> best genz actor around . . . </sup>
+<sup> I can be your little dairy queen !!! </sup>
 </div>
