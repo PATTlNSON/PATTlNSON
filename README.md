@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=PATTlNSON&color=FAFCFA&label=☆)
   </div>
 <div align="center">  
-<img width="640" height="586" alt="ezgif-8c95132209defe90" src="https://i.ibb.co/BxKqhVT/ezgif-6d290510549ab35c.gif"
+<img width="640" height="586" alt="ezgif-8c95132209defe90" src="https://files.catbox.moe/mnpviw.gif"
 " />
   </div>
   <div align="center">
