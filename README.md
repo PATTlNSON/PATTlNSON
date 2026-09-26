@@ -1,6 +1,6 @@
 <div align="center">  
 
-![](https://komarev.com/ghpvc/?username=PATTlNSON&color=FAFCFA&label=☆)
+![](https://komarev.com/ghpvc/?username=PATTlNSON&color=E3D8D3&label=☆)
   </div>
 <div align="center">  
 <img width="656" height="360" alt="robpat" src="https://github.com/user-attachments/assets/c89713c7-33e9-43b8-b058-cdb15f72d3c7" />
