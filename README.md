@@ -8,8 +8,8 @@
   <div align="center">
 
 <div align="center">
-<sup> I can be your one time baby . . . </sup>
+<sup> dont u know i think ur da cats meoww . . . </sup>
 </div>
 <div align="center">
-<sup> I can be your little dairy queen !!! </sup>
+<sup> where's the tiger now , where's the tiger now ? </sup>
 </div>
